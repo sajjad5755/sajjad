@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **princesajjadhossain8@gmail.com** For Collaboration/Projec
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** princesajjadhossain8@gmail.com
-- 😄 **Pronouns:** sajjad hossain
+- 😄 **Pronouns:** sajjad
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 
